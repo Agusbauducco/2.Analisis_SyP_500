@@ -1,1 +1,0 @@
-# 2.Analisis_SyP_500
